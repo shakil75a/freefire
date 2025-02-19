@@ -1,10 +1,10 @@
 Free Fire Unlimited Diamonds Cookole; ?
 
-***[🔛👉👉Click Here Free Link👈👈🔴](https://rivanhub.com/free-fire/)***
+***[🔛👉👉Click Here Free Link👈👈🔴](https://rivanhub.com/freefirefree)***
 
 
 
-***[🔛👉👉Click Here Free Link👈👈🔴](https://rivanhub.com/free-fire/)***
+***[🔛👉👉Click Here Free Link👈👈🔴](https://rivanhub.com/freefirefree)***
 
 
 
